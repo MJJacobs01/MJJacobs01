@@ -2,7 +2,7 @@
 
 I am a highly analytical and detailed orientated, self taught Android developer with 4+ years of part time experience.
 
-I am currently a logistics manager with 11 years of experience, leveraging my organizational skills to deliver efficient and scalable mobile solutions. 
+I am a logistics manager with extensive experience, leveraging my organizational skills to deliver efficient and scalable mobile solutions. 
 
 I am very passionate about mobile technology and how it can assist businesses grow, innovate and optimise.
 
